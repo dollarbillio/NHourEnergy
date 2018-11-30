@@ -3,3 +3,4 @@
 * https://soundcloud.com/deepmind2018/aries-atam-dj-geny-tur-techno-project-deep-love-deep-mind
 * https://soundcloud.com/deepmind2018/ash-daydream-deep-mind
 * https://soundcloud.com/nes-ka/royksopp-here-she-comes-again
+* https://soundcloud.com/radiomagnitola/max-oazo-feat-cami-wicked-game-magnitola-extended-mix
